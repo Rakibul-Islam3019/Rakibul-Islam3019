@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...5y
 - 📫 How to reach me: ...56y
 - 😄 Pronouns: ...tryy
-- ⚡ Fun fact: ...try
+- ⚡ Fun fact: ...tryh
